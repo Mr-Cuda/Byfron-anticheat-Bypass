@@ -1,4 +1,4 @@
-# Byfron-anticheat-Byapss
+# Byfron-anticheat-Bypass
 New EpicGames anticheat is now bypassed! 😉
 
 
